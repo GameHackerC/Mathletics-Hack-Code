@@ -1,3 +1,5 @@
+Instuctions:
+
 1. Click on the file: Mathletics Hack Script
 2. Copy the code
 3. Go to mathletics.com
